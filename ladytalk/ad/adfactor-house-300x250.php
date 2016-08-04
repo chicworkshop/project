@@ -1,1 +1,0 @@
-<a href="http://shopify.chicworkshop.com/"><img src="http://ad.cw2006.com/sites/ad.cw2006.com/files/ad/2012/08/shopify-300x250-003.jpg" /></a>
